@@ -1,1 +1,1 @@
-# Job-Compass-Job-Recommendation-Skill-Enhancing-Guide
+# Job Compass -Job Recommendation and Skill Enhancing Guide
